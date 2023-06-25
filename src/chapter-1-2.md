@@ -1,4 +1,4 @@
-Introduction: Overview of Self-Care
+Overview of Self-Care
 ===================================
 
 Self-care is a crucial aspect of personal wellness and transformation. In today's fast-paced world, it can be easy to neglect one's own well-being in favor of work, family, or other obligations. However, prioritizing self-care is essential for achieving greater overall health and happiness.

@@ -1,5 +1,4 @@
-Chapter 6: Self-Care and Personal Growth: Setting Goals and Developing a Plan for Growth
-========================================================================================
+# Setting Goals and Developing a Plan for Growth
 
 Self-care is not only important for personal well-being, but it can also be a tool for personal growth and transformation. In this chapter, we will explore the ways in which self-care can be used to set goals and develop a plan for personal growth.
 

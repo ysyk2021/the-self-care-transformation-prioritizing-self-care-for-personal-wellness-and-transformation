@@ -1,5 +1,4 @@
-Chapter 1: Defining Self-Care: Different Types of Self-Care
-===========================================================
+# Different Types of Self-Care
 
 Self-care is an essential aspect of personal wellness and transformation. In this chapter, we will explore the different types of self-care and their importance for overall well-being.
 

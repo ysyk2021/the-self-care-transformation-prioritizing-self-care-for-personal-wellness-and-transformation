@@ -1,5 +1,4 @@
-Chapter 5: Social Self-Care: Cultivating a Sense of Community
-=============================================================
+# Cultivating a Sense of Community
 
 Social self-care is an important component of overall well-being. In this chapter, we will explore the benefits of cultivating a sense of community as a form of social self-care.
 

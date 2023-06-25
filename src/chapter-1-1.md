@@ -1,4 +1,4 @@
-Introduction: Purpose of the Book
+Purpose of the Book
 =================================
 
 The purpose of this book is to explore the importance of prioritizing self-care for personal wellness and transformation. In today's fast-paced world, it can be easy to neglect one's own well-being in favor of work, family, or other obligations. However, prioritizing self-care is essential for achieving greater overall health and happiness.

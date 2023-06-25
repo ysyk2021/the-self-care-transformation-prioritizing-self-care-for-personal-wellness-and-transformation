@@ -1,5 +1,4 @@
-Chapter 8: Self-Care and Social Justice: Addressing Systemic Issues that Impact Self-Care
-=========================================================================================
+# Addressing Systemic Issues that Impact Self-Care
 
 Self-care is a crucial aspect of personal wellness and transformation, but it can be impacted by systemic issues such as inequality and discrimination. In this chapter, we will explore the intersection between self-care and social justice, and discuss strategies for addressing these systemic issues.
 

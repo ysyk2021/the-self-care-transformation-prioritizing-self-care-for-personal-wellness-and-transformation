@@ -1,5 +1,4 @@
-Chapter 7: Self-Care and Professional Development: Developing Professional Skills through Self-Care
-===================================================================================================
+# Developing Professional Skills through Self-Care
 
 Self-care is not only important for personal well-being, but it can also have a positive impact on professional development. In this chapter, we will explore the ways in which self-care can be used to develop professional skills.
 

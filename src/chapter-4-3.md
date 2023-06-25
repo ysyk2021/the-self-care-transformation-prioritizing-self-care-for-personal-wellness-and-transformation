@@ -1,5 +1,4 @@
-Chapter 3: Physical Self-Care: Sleep and Rest
-=============================================
+# Sleep and Rest
 
 Sleep and rest are essential components of physical self-care. In this chapter, we explore the importance of sleep and rest for physical health and well-being.
 

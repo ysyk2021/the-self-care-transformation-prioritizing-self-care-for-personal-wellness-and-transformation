@@ -1,5 +1,4 @@
-Chapter 5: Social Self-Care: Building and Maintaining Supportive Relationships
-==============================================================================
+# Building and Maintaining Supportive Relationships
 
 Social self-care involves connecting with others and building positive relationships. In this chapter, we will explore the importance of building and maintaining supportive relationships for social self-care.
 

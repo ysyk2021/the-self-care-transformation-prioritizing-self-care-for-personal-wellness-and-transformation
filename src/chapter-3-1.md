@@ -1,5 +1,4 @@
-Chapter 2: Barriers to Self-Care: Common Barriers to Practicing Self-Care
-=========================================================================
+# Common Barriers to Practicing Self-Care
 
 Practicing self-care is crucial for personal wellness and transformation. However, there are common barriers that can prevent individuals from prioritizing self-care. In this chapter, we explore some of these barriers and strategies for overcoming them.
 

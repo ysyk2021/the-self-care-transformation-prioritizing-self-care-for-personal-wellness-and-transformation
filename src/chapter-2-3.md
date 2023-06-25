@@ -1,5 +1,4 @@
-Chapter 1: Defining Self-Care: Benefits of Self-Care
-====================================================
+# Benefits of Self-Care
 
 Self-care is the act of prioritizing one's own well-being through practices that enhance physical, emotional, and mental health. In this chapter, we will define self-care and explore its many benefits.
 

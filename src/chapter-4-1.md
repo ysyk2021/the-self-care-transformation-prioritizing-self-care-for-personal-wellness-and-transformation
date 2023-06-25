@@ -1,5 +1,4 @@
-Chapter 3: Physical Self-Care: Practices for Maintaining Physical Well-being
-============================================================================
+# Practices for Maintaining Physical Well-being
 
 Physical self-care is an essential component of overall wellness and transformation. In this chapter, we explore practical practices that can be implemented to maintain physical well-being.
 

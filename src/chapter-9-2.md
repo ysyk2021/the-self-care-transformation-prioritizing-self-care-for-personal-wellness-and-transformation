@@ -1,5 +1,4 @@
-Chapter 8: Self-Care and Social Justice: Using Self-Care as a Tool for Social Change
-====================================================================================
+# Using Self-Care as a Tool for Social Change
 
 Self-care is not only important for personal well-being and transformation, but it can also be a powerful tool for social change. In this chapter, we will explore the intersection of self-care and social justice, and discuss strategies for using self-care as a tool for social change.
 

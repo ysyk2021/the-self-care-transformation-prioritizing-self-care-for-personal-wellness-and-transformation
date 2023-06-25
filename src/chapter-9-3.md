@@ -1,5 +1,4 @@
-Chapter 8: Self-Care and Social Justice: Creating Inclusive and Equitable Self-Care Practices
-=============================================================================================
+# Creating Inclusive and Equitable Self-Care Practices
 
 Self-care is not only important for personal well-being and transformation, but it can also be a powerful tool for social change. However, it's important to recognize that self-care practices are not equally accessible to all individuals. In this chapter, we will explore strategies for creating inclusive and equitable self-care practices.
 

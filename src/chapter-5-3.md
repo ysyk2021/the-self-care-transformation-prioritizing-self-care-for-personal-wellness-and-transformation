@@ -1,5 +1,4 @@
-Chapter 4: Emotional Self-Care: Journaling and Self-Reflection
-==============================================================
+# Journaling and Self-Reflection
 
 Emotional self-care involves managing emotions in a healthy way. In this chapter, we will explore the benefits of journaling and self-reflection as a form of emotional self-care.
 

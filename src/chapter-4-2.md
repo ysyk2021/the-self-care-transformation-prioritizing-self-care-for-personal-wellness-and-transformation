@@ -1,5 +1,4 @@
-Chapter 3: Physical Self-Care: Nutrition and Exercise
-=====================================================
+# Nutrition and Exercise
 
 Physical self-care is an essential component of overall wellness and transformation. In this chapter, we explore the importance of nutrition and exercise for physical self-care.
 

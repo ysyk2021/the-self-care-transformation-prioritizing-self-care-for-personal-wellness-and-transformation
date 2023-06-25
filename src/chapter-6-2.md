@@ -1,5 +1,4 @@
-Chapter 5: Social Self-Care: Setting Boundaries and Managing Social Obligations
-===============================================================================
+# Setting Boundaries and Managing Social Obligations
 
 Social self-care involves connecting with others and building positive relationships. However, it's important to set boundaries and manage social obligations in order to prioritize personal well-being. In this chapter, we will explore the importance of setting boundaries and strategies for managing social obligations.
 

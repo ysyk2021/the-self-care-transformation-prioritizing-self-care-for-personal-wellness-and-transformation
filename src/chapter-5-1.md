@@ -1,5 +1,4 @@
-Chapter 4: Emotional Self-Care: Practices for Managing Emotions
-===============================================================
+# Practices for Managing Emotions
 
 Emotional self-care is an important aspect of overall well-being. In this chapter, we will explore practices for managing emotions as a form of emotional self-care.
 

@@ -1,5 +1,4 @@
-Chapter 1: Defining Self-Care: What is Self-Care?
-=================================================
+# What is Self-Care?
 
 Self-care is an essential aspect of personal wellness and transformation. In this chapter, we will explore what self-care is and its importance for overall well-being.
 
