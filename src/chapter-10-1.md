@@ -1,4 +1,4 @@
-Conclusion: Summary of Key Points
+Summary of Key Points
 =================================
 
 In this book, we have explored the importance of self-care for personal wellness and transformation. We have discussed various aspects of self-care, including physical self-care, emotional self-care, and developing a mindset of self-care. Here is a summary of some key points:
