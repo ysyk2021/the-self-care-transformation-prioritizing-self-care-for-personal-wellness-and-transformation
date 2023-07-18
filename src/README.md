@@ -10,5 +10,4 @@ Whether you're struggling with stress, anxiety, or other challenges, 'The Self-C
 
 So, if you're ready to transform your life through the power of self-care, this book is for you! Whether you're a busy professional, a student, or simply someone who wants to prioritize their well-being, 'The Self-Care Transformation' will guide you on your journey towards personal transformation and lasting wellness.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
