@@ -1,4 +1,4 @@
-Chapter: Purpose of the Book
+Purpose of the Book
 ============================
 
 Introduction

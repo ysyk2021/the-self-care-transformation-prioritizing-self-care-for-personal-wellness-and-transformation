@@ -1,4 +1,4 @@
-Chapter: Sleep and Rest
+Sleep and Rest
 =======================
 
 In this chapter, we will explore the crucial role of sleep and rest in prioritizing self-care for personal wellness and transformation. Understanding the significance of quality sleep and intentional rest can positively impact your physical health, mental well-being, and overall productivity. By prioritizing sleep and rest, you can recharge your body and mind, enhance your cognitive abilities, and promote optimal functioning.

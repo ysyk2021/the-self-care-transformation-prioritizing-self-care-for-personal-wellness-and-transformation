@@ -1,4 +1,4 @@
-Chapter: Benefits of Self-Care
+Benefits of Self-Care
 ==============================
 
 In this chapter, we will explore the numerous benefits of practicing self-care and how it can positively impact your well-being. Understanding the advantages of prioritizing self-care is essential for embracing its transformative power and creating a healthier and more fulfilling life.

@@ -1,4 +1,4 @@
-Chapter: Creating Inclusive and Equitable Self-Care Practices
+Creating Inclusive and Equitable Self-Care Practices
 =============================================================
 
 In this chapter of "The Self Care Transformation: Prioritizing Self Care for Personal Wellness and Transformation," we will explore the importance of creating inclusive and equitable self-care practices. By acknowledging and addressing the unique needs and experiences of diverse individuals, we can develop self-care approaches that are accessible, relevant, and empowering for everyone.

@@ -1,4 +1,4 @@
-Chapter: Overcoming These Barriers
+Overcoming These Barriers
 ==================================
 
 Introduction

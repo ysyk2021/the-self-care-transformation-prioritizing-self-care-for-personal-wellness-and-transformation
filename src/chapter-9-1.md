@@ -1,4 +1,4 @@
-Chapter: Addressing Systemic Issues That Impact Self-Care
+Addressing Systemic Issues That Impact Self-Care
 =========================================================
 
 In this chapter of "The Self Care Transformation: Prioritizing Self Care for Personal Wellness and Transformation," we will explore the systemic issues that can hinder individuals from practicing self-care effectively. By addressing these underlying factors, we can work towards creating a more supportive environment that promotes and enables self-care on a broader scale.

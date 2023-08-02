@@ -1,4 +1,4 @@
-Chapter: What is Self-Care?
+What is Self-Care?
 ===========================
 
 In this chapter, we will explore the concept of self-care and its significance in prioritizing personal wellness and transformation. Self-care encompasses a wide range of practices and strategies that promote physical, mental, and emotional well-being. Understanding what self-care truly means and how it can positively impact your life is essential for fostering a healthier and more fulfilling lifestyle.

@@ -1,4 +1,4 @@
-Chapter: Different Types of Self-Care
+Different Types of Self-Care
 =====================================
 
 In this chapter, we will explore the various types of self-care that can be incorporated into your daily routine. Understanding and embracing different forms of self-care allows you to create a holistic approach to personal wellness and transformation.

@@ -1,4 +1,4 @@
-Chapter: Nutrition and Exercise
+Nutrition and Exercise
 ===============================
 
 In this chapter, we will explore the vital role of nutrition and exercise in prioritizing self-care for personal wellness and transformation. Understanding the significance of nourishing your body with proper nutrition and engaging in regular physical activity can positively impact your overall health, energy levels, and mental well-being. By prioritizing nutrition and exercise, you can optimize your physical performance, enhance your mood, and support long-term well-being.

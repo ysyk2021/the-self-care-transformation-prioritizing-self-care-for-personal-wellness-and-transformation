@@ -1,4 +1,4 @@
-Chapter: Developing a Mindset of Self-Care
+Developing a Mindset of Self-Care
 ==========================================
 
 Introduction

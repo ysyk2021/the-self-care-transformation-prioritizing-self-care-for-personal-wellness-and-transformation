@@ -1,4 +1,4 @@
-Chapter: Cultivating a Sense of Community
+Cultivating a Sense of Community
 =========================================
 
 In this chapter, we will explore the importance of cultivating a sense of community as an integral part of self-care. Building and nurturing meaningful connections with others can have a profound impact on personal wellness and transformation. By fostering a sense of community, you can enhance your support system, find belonging, and create a positive environment for personal growth.

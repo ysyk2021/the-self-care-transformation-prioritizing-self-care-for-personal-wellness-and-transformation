@@ -1,4 +1,4 @@
-Chapter: Overview of Self-Care
+Overview of Self-Care
 ==============================
 
 Welcome to the chapter on the overview of self-care in "The Self Care Transformation: Prioritizing Self Care for Personal Wellness and Transformation." In this chapter, we will explore the concept of self-care and its significance in fostering personal wellness and transformation. Gain a deeper understanding of what self-care entails and how it can enhance various aspects of your life.
