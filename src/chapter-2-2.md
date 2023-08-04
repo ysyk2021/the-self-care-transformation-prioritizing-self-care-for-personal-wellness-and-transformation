@@ -3,7 +3,7 @@ Different Types of Self-Care
 
 In this chapter, we will explore the various types of self-care that can be incorporated into your daily routine. Understanding and embracing different forms of self-care allows you to create a holistic approach to personal wellness and transformation.
 
-1. Physical Self-Care
+1\. Physical Self-Care
 ---------------------
 
 Physical self-care involves taking care of your body's physical needs and well-being. Here are some examples:
@@ -16,7 +16,7 @@ Physical self-care involves taking care of your body's physical needs and well-b
 
 * **Personal Hygiene**: Maintaining personal hygiene habits, like regular bathing, dental care, and grooming, contributes to your overall well-being and self-esteem.
 
-2. Emotional Self-Care
+2\. Emotional Self-Care
 ----------------------
 
 Emotional self-care focuses on nurturing your emotional well-being and building emotional resilience. Consider these practices:
@@ -29,7 +29,7 @@ Emotional self-care focuses on nurturing your emotional well-being and building 
 
 * **Practicing Mindfulness**: Being present in the moment, observing your thoughts and emotions non-judgmentally, cultivates emotional awareness and reduces reactivity.
 
-3. Intellectual Self-Care
+3\. Intellectual Self-Care
 -------------------------
 
 Intellectual self-care focuses on stimulating your mind, expanding your knowledge, and engaging in activities that promote intellectual growth:
@@ -42,7 +42,7 @@ Intellectual self-care focuses on stimulating your mind, expanding your knowledg
 
 * **Intellectual Conversations**: Seek out meaningful conversations and discussions with others to exchange ideas and broaden your perspective.
 
-4. Social Self-Care
+4\. Social Self-Care
 -------------------
 
 Social self-care involves nurturing and maintaining healthy relationships with others:
@@ -55,7 +55,7 @@ Social self-care involves nurturing and maintaining healthy relationships with o
 
 * **Acts of Kindness**: Engage in acts of kindness and contribute to your community, fostering positive social interactions and a sense of purpose.
 
-5. Spiritual Self-Care
+5\. Spiritual Self-Care
 ----------------------
 
 Spiritual self-care focuses on nurturing your inner self and connecting with something greater than yourself:
