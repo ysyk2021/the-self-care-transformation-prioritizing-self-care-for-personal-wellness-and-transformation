@@ -15,4 +15,3 @@ In this book, we have explored the importance of self-care for personal wellness
 
 By prioritizing self-care and incorporating practices that promote personal wellness, individuals can achieve greater overall well-being and personal growth and transformation.
 
-
