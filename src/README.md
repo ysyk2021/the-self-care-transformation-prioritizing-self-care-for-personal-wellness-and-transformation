@@ -1,4 +1,3 @@
-# Introduction
 
 In today's fast-paced world, it's easy to get caught up in the hustle and bustle of daily life and neglect our own well-being. But prioritizing self-care is essential for achieving balance, fulfillment, and personal transformation.
 

@@ -1,5 +1,3 @@
-Practices for Managing Emotions
-========================================
 
 In this chapter, we will explore various practices and techniques that can help you effectively manage your emotions as part of your self-care transformation journey. Discover strategies to understand, regulate, and harness your emotions to promote personal wellness and transformation.
 

@@ -1,5 +1,3 @@
-Setting Boundaries and Managing Social Obligations
-===========================================================
 
 In this chapter, we will explore the importance of setting boundaries and managing social obligations as a critical aspect of prioritizing self-care for personal wellness and transformation. By establishing healthy boundaries and effectively managing your social commitments, you can maintain balance, preserve your energy, and prioritize your own well-being.
 

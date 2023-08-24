@@ -1,5 +1,3 @@
-Incorporating Self-Care into Workplace Culture
-=======================================================
 
 In this chapter of "The Self Care Transformation: Prioritizing Self Care for Personal Wellness and Transformation," we will explore the importance of incorporating self-care into workplace culture. By creating an environment that supports and encourages self-care practices, employers and employees can foster a positive and thriving work atmosphere while prioritizing individual well-being.
 

@@ -1,5 +1,3 @@
-Introduction
-============
 
 Self-care is an essential aspect of personal wellness and transformation, yet it can be easy to neglect amidst the demands of our busy lives. In this book, we will explore the importance of prioritizing self-care for achieving greater overall health and happiness.
 

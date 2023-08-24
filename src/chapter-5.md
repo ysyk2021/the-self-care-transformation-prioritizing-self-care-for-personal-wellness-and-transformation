@@ -1,5 +1,3 @@
-Chapter 4: Emotional Self-Care
-==============================
 
 Emotional self-care is an essential component of overall wellness and transformation. In this chapter, we explore practices for managing emotions and enhancing emotional well-being.
 

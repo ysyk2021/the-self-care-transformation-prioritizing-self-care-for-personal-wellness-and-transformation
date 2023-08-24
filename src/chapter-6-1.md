@@ -1,5 +1,3 @@
-Building and Maintaining Supportive Relationships
-==========================================================
 
 In this chapter, we will delve into the significance of building and maintaining supportive relationships as a crucial aspect of self-care. Developing healthy connections with others can greatly contribute to personal wellness and transformation. By fostering supportive relationships, you can enhance emotional well-being, receive valuable support, and experience personal growth.
 

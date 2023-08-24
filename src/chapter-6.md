@@ -1,5 +1,3 @@
-Chapter 5: Social Self-Care
-===========================
 
 Social self-care involves connecting with others and building positive relationships. In this chapter, we will explore the importance of social self-care and strategies for cultivating supportive relationships.
 
@@ -40,5 +38,4 @@ Conclusion
 ----------
 
 In conclusion, social self-care is essential for personal well-being and transformation. By building and maintaining supportive relationships, setting boundaries and managing social obligations, and cultivating a sense of community, individuals can enhance their overall social well-being. By prioritizing social self-care, individuals can experience greater connection, belonging, and happiness.
-
 

@@ -1,5 +1,3 @@
-Chapter 3: Physical Self-Care
-=============================
 
 Physical self-care is an essential component of overall wellness and transformation. In this chapter, we explore practices for maintaining physical well-being through nutrition and exercise, as well as sleep and rest.
 

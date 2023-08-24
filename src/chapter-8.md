@@ -1,5 +1,3 @@
-Chapter 7: Self-Care and Professional Development
-=================================================
 
 Self-care is not just important for personal wellness, but it can also have a significant impact on professional development. In this chapter, we explore how self-care can be used to enhance professional skills and create a more positive workplace culture.
 

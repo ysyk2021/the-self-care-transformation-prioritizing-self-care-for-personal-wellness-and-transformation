@@ -1,4 +1,3 @@
-# Conclusion
 
 Self-care is essential for personal wellness and transformation. In this book, we have explored different types of self-care, common barriers to practicing self-care, and strategies for incorporating self-care practices into daily routines. We have also discussed the intersection of self-care and social justice, and strategies for using self-care as a tool for social change.
 

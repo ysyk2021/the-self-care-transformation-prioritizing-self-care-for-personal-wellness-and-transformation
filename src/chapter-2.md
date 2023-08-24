@@ -1,5 +1,3 @@
-Chapter 1: Defining Self-Care
-=============================
 
 Self-care is an important aspect of personal wellness and transformation. In this chapter, we will define self-care, explore the different types of self-care, and discuss the benefits of prioritizing self-care.
 

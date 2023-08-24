@@ -1,5 +1,3 @@
-Chapter 2: Barriers to Self-Care
-================================
 
 Practicing self-care is crucial for personal wellness and transformation. However, there are common barriers that can prevent individuals from prioritizing self-care. In this chapter, we explore some of these barriers, strategies for overcoming them, and developing a mindset of self-care.
 

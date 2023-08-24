@@ -1,5 +1,3 @@
-Practices for Maintaining Physical Well-being
-======================================================
 
 In this chapter, we will explore various practices that can help you prioritize and maintain your physical well-being as a key aspect of self-care. By incorporating these practices into your daily life, you can enhance your overall health, vitality, and sense of personal wellness.
 
